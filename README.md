@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...阿瑋
 - ⚡ Fun fact: ...
 - 🪪 Licenses and Certificates: ESG證照、企業碳盤查證照
-- 🏁 Contest: departmental basketball team game NO.1、
+- 🏁 Contest: 籃球系際盃NO.1、籃球新生盃四強
 - - <!---
 Chungtingwei/Chungtingwei is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
